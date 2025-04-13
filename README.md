@@ -1,4 +1,4 @@
-# Biography-
+# Biography
 
 # Hi there 👋 I'm Rakshya Khadka
 
